@@ -1,5 +1,5 @@
 
-### 2. Der rennende Stein
+## 2. Der rennende Stein
 
 
 Dies war ein Stein, einen Ellen lang und einen Ellen breit, rechteckig. Er befand sich immer in Musas (علیہ السلام) Umhang. Durch diesen gesegneten Stein zeigten sich zwei Wunder Musas (علیہ السلام). Beide sind im Heiligen Quran erwähnt.

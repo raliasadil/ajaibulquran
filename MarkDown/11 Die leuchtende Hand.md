@@ -1,4 +1,4 @@
-### 04 Die leuchtende Hand
+## 4. Die leuchtende Hand
 
 Als Allah der Erhabene Prophet Musa (علیہ السلام) sandte, um Pharao zur Rechtleitung zu rufen, gab Er ihm zwei Wunder mit: Eines war der Stock, das andere war "Yad al-Bayda" (die leuchtende Hand). Prophet
 Musa (علیہ السلام) steckte seine Hand in seinen Kragen und zog sie heraus, da begann seine Hand sofort zu leuchten und zu strahlen. Und wenn er seine Hand wieder in seinen Kragen steckte, nahm sie ihren ursprünglichen Zustand an. Dieses Wunder wird im Heiligen Quran in verschiedenen Suren wiederholt erwähnt. So heißt es in der Sure Taha:

@@ -1,4 +1,4 @@
-### 06 Zwölftausend Juden wurden zu Affen
+## 6. Zwölftausend Juden wurden zu Affen
 
 
 Es wird überliefert, dass siebzigtausend Menschen aus dem Volk von Prophet Dawood (علیہ السلام) in einem Dorf namens "Eila" am Meer in der Nähe von "Aqabah" lebten und ein sehr reiches und wohlhabendes Leben führten. Allah der Erhabene prüfte sie auf diese Weise, indem Er den Fischfang am Samstag für sie verbot und an den übrigen Tagen der Woche erlaubte, aber Er prüfte diese Menschen so, dass am Samstag sehr viele Fische kamen und an den anderen Tagen nicht kamen. So gab der Satan diesen Menschen den Trick, dass sie einige Gräben vom Meer zum Land graben und einige Becken anlegen sollten, und wenn am Samstag Fische durch diese Gräben in die Becken kämen, sollten sie die Mündung der Gräben schließen. Und an diesem Tag sollten sie nicht fischen, sondern die Fische am nächsten Tag leicht fangen. Diesen Menschen gefiel dieser teuflische Trick, und sie dachten nicht daran, dass die Fische, wenn sie in den Gräben und Becken eingesperrt wären, eben an diesem Tag gefangen würden. So wurde das Fischen am Samstag erlaubt, was für sie verboten war. In

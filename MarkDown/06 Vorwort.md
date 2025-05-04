@@ -1,4 +1,4 @@
-### Vorwort
+## Vorwort
 
 الحمد لله عز وجل ! Dies ist unser Bestreben, die Bücher unserer Vorgänger in bester Form zu präsentieren. In dieser Reihe sind viele Traktate von Imam Ahl-e-Sunnat Maulana Imam Ahmad Raza Khan (علیہ رحمۃ الرحمن) (mit Referenzen versehen und erleichtert) gedruckt und haben große Anerkennung von Öffentlichkeit und Elite erhalten. Ebenso wurde der erste Teil von "Bahar-e-Shariat" veröffentlicht. Nun präsentieren wir "Ajaib-ul-Quran ma Gharaib-ul-Quran", ein Werk von Sheikh-ul-Hadith Hazrat Allama Abdul Mustafa Azmi (علیہ الرحمۃ). Darin werden die Ereignisse des Qurans auf sehr interessante Weise beschrieben.
 

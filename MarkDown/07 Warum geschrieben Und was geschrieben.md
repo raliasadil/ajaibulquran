@@ -2,7 +2,7 @@
 
 حَامِدًا وَمُصَلِّيًا وَمُسَلِّمًا
 
-### Warum geschrieben? Und was geschrieben?
+## Warum geschrieben? Und was geschrieben?
 
 Im Rabiul Awwal 1400 n.H. äußerten einige angesehene Gelehrte des Ahl-e-Sunnat ihren Wunsch in Form einer Bitte, dass ich eine einfache und leicht verständliche Übersetzung des Heiligen Qurans schreiben möge. Zu dieser Zeit hatte ich gerade den ersten Schlaganfall erlitten. Ich entschuldigte mich bei diesen Herren wegen meiner Schwäche und Krankheit und bat um Entlassung von dieser Aufgabe. Und ich erklärte, dass ich die Arbeit sicherlich begonnen hätte, wenn Sie mich einige Jahre zuvor darauf aufmerksam gemacht hätten, aber jetzt, da der Schlaganfall meine Kräfte völlig gelähmt hat, ist eine so große Aufgabe für mich nicht möglich. Dann sagten einige Verwandte: Wenn Sie nicht den gesamten Heiligen Quran übersetzen können, wäre es sehr gut und ein äußerst nützliches wissenschaftliches Werk, wenn Sie nur einige Verse des Heiligen Qurans übersetzen und interpretieren würden, wie in "Noor-ul-Hadith", und die Verse angemessen erläutern würden.
 

@@ -1,4 +1,4 @@
-### 5. Manna und Salwa
+## 5. Manna und Salwa
 Als Prophet Musa (علیہ السلام) mit seinen sechshunderttausend Anhängern, den Kindern Israels, im Tiih-Feld verweilte, sandte Allah der Erhabene zwei Speisen vom Himmel herab, um diese Menschen zu ernähren. Eine hieß "Manna" und die andere "Salwa". Manna war eine Art Süßigkeit, ganz weiß wie Honig. Oder es war weißer Honig, der täglich wie Regen vom Himmel fiel, und Salwa waren gekochte Wachteln, die täglich mit dem Wind vom Himmel herabkamen. Allah der Erhabene erwähnt Seine Gunst gegenüber den Kindern Israels im Heiligen Quran wie folgt:
 
 وَاَنْزَلْنَا عَلَيْكُمُ الْمَنَّ وَالسَّلوى ( ١ البقرة: ٥٧)

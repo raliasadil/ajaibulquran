@@ -1,4 +1,4 @@
-### 3 Das Tiih-Feld
+## 3. Das Tiih-Feld
 
 
 Als Pharao im Nil ertrank und alle Kinder Israels gläubig wurden und Prophet Musa (علیہ السلام) Gewissheit erlangte, befahl Allah der Erhabene, dass er mit dem Heer der Kinder Israels in das Heilige Land (Jerusalem) einzieht. Zu dieser Zeit war Jerusalem von den Amalekitern besetzt, die die schlimmsten Ungläubigen, sehr mächtig und kriegerisch und äußerst tyrannisch waren. So machte sich Prophet Musa (علیہ السلام) mit sechshunderttausend Kindern Israels auf, um gegen das Volk Amalek zu kämpfen, doch als die Kinder Israels in die Nähe Jerusalems kamen, wurden sie plötzlich feige und sagten: Dieses Volk hier sind "Jabbareen" (Amalekiter), die sehr stark und mächtig sind. Solange diese Menschen in der Stadt sind, werden wir auf keinen Fall die Stadt betreten. Stattdessen sagten die Kinder Israels Prophet Musa (علیہ السلام): O Musa, gehe du mit deinem Herrn und kämpfe gegen dieses mächtige Volk. Wir werden hier sitzen bleiben. Als Prophet Musa (علیہ السلام) dies von der Zunge der Kinder Israels hörte, war er sehr betrübt, und er richtete sich an den Hof des Allerhöchsten und sagte dies:

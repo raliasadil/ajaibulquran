@@ -2,7 +2,7 @@
 
 نَحْمَدُهُ وَنُصَلِّي عَلَى رَسُولِهِ الْكَرِيمِ
 
-### 1. Der Stock des Paradieses
+## 1. Der Stock des Paradieses
 
 Dies ist jener heilige Stock von Prophet Musa (علیہ السلام), der "Asa Musa" (der Stock von Musa) genannt wird. Durch ihn manifestierten sich viele Seiner Wunder, die der Quran wiederholt unter verschiedenen Titeln beschrieben hat.
 
@@ -69,3 +69,4 @@ Als Pharao den Fluss erreichte und die Wege im Fluss sah, ging auch er mit seine
 **Übersetzung von Kanz-ul-Iman:** Und als die beiden Heere einander sahen, sagten die Gefährten Musas: Wir werden sicherlich eingeholt. Musa sagte: Niemals! Wahrlich, mein Herr ist mit mir, Er wird mich leiten. Da offenbarten Wir Musa: Schlag mit deinem Stock auf das Meer! Da teilte es sich, und jeder Teil war wie ein großer Berg. Und Wir brachten die anderen dorthin nahe. Und Wir retteten Musa und alle, die mit ihm waren. Dann ertränkten Wir die anderen. Wahrlich, darin ist ein Zeichen, und die meisten von ihnen waren keine Gläubigen.
 
 Dies sind die drei großen Wunder, die sich durch den heiligen Stock von Prophet Musa (علیہ السلام) zeigten und die der Heilige Quran wiederholt in verschiedenen Worten und unter verschiedenen Titeln erwähnt hat, um den Menschen Lehren und Rechtleitung zu geben. (Und Allah weiß es am besten)
+

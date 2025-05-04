@@ -1,4 +1,4 @@
-### 07 Die wertvollste Kuh der Welt
+## 7. Die wertvollste Kuh der Welt
 
 Dies ist ein sehr wichtiges und äußerst wunderbares Koranereignis. Und wegen dieses Ereignisses wurde die Sure im Heiligen Koran "Sure Al-Baqarah" (Die Sure der Kuh) genannt.
 
@@ -17,4 +17,21 @@ Der gesamte Inhalt wird in den heiligen Versen des Heiligen Qurans wie folgt bes
 
 **Übersetzung von Kanz-ul-Iman:** Und als Musa zu seinem Volk sagte: Allah befiehlt euch, eine Kuh zu schlachten. Sie sagten: Machst du uns zum Gespött? Er sagte: Ich suche Zuflucht bei Allah, dass ich zu den Unwissenden gehöre. Sie sagten: Bitte deinen Herrn für uns, Er möge uns sagen, wie die Kuh ist. Er sagte: Er sagt, es ist eine Kuh, die weder alt noch jung ist, sondern dazwischen, so tut, was euch befohlen wird. Sie sagten: Bitte deinen Herrn für uns, Er möge uns sagen, welche Farbe sie hat. Er sagte: Er sagt, es ist eine gelbe Kuh.
 
-deren Farbe die Betrachter erfreut. Sie sagten: Bitte deinen Herrn für uns, Er möge uns klar sagen, wie die Kuh ist, denn wahrlich, wir zweifeln an den Kühen und wenn Allah will, werden wir den richtigen Weg finden. Er sagte: Er sagt, es ist eine Kuh, die nicht für die Arbeit benutzt wird, weder für das Pflügen der Erde noch für die Bewässerung der Felder, fehlerfrei, ohne Makel. Sie sagten: Nun hast du die Wahrheit gesagt.
+deren Farbe die Betrachter erfreut. Sie sagten: Bitte deinen Herrn für uns, Er möge uns klar sagen, wie die Kuh ist, denn wahrlich, wir zweifeln an den Kühen und wenn Allah will, werden wir den richtigen Weg finden. Er sagte: Er sagt, es ist eine Kuh, die nicht für die Arbeit benutzt wird, weder für das Pflügen der Erde noch für die Bewässerung der Felder, fehlerfrei, ohne Makel. Sie sagten: Nun hast du die Wahrheit gesagt.  Also schlachteten sie sie, und sie wurden beim Schlachten nicht erkannt. Und als ihr einen Mord begangen hattet, beschuldigte jeder den anderen. Und Allah sollte offenbaren, was ihr verbargt. So sagten Wir: Schlag den Ermordeten mit einem Stück dieser Kuh! So belebt Allah die Toten und zeigt euch Seine Zeichen, damit ihr verständig werdet. 
+(Juz 1, Al-Baqarah: 67 bis 83)
+
+### Lektion der Rechtleitung:
+
+Aus dieser Begebenheit ergeben sich viele lehrreiche und rätzelhafte Dinge und Befehle, von denen einige es wert sind, erinnert zu werden:
+
+1. Im Vermögen, das Allahs gute Diener hinterlassen, liegt großer Segen. Seht, dieser rechtschaffene Mann hinterließ nur ein Kalb, als er starb, doch Allah der Erhabene verlieh ihm solchen Segen, dass seine Erben durch dieses eine Kalb unzählige Reichtümer erlangten.
+2. Dieser rechtschaffene Mann vertraute das Kalb Allah an, indem er Zuneigung zu seiner Nachkommenschaft zeigte. Daraus wird klar, dass das Zeigen von Zuneigung zur Nachkommenschaft und das Hinterlassen von etwas Vermögen für die Nachkommenschaft die Methode der Leute Allahs ist.
+3. Allah der Großzügige gewährt denjenigen, die ihren Eltern gehorchen und ihnen dienen, unzählige Nahrung aus dem Verborgenen. Seht, wie Allah der Erhabene diesem Waisenjungen durch den Dienst an seiner Mutter und seinen Gehorsam reichlich und wohlhabend machte.
+4. Debatten und Nachforschungen in den Befehlen Allahs des Heiligen und Erhabenen werden zur Ursache von Schwierigkeiten. Seht, den Kindern Israels wurde befohlen, eine Kuh zu schlachten. Sie hätten irgendeine Kuh schlachten können, und die Pflicht wäre erfüllt gewesen, aber als diese Leute begannen, zu debattieren und nachzuforschen: Wie soll die Kuh sein? Welche Farbe? Welches Alter? Da gerieten sie in Schwierigkeiten, dass sie eine Kuh schlachten mussten, die völlig selten war. Deshalb mussten sie einen so hohen Preis dafür bezahlen, wie es noch nie zuvor für eine Kuh auf der Welt bezahlt wurde, und es gab keine Hoffnung, dass sie in Zukunft existieren würde.
+5. Wer sein Vermögen Allah dem Erhabenen als anvertrautes Gut anvertraut, dessen Vermögen beschützt Allah der Erhabene und gewährt ihm unzählige Güte und Segen.
+6. Wer seine Familie Allah dem Erhabenen anvertraut, Allah der Erhabene sorgt so für seine Familie, dass niemand es sich vorstellen kann.
+7. Amir-ul-Mu'minin Hazrat Ali (رضی اللہ تعالیٰ عنہ) sagte, dass wer als Erster Schuhe einer bestimmten Farbe trägt, immer glücklich sein wird und wenig Kummer haben wird. Denn Allah der Erhabene sagte über die Kuh des Rätsels: تَسُرُّ النَّظِرِينَ "dass sie die Betrachter erfreut".
+
+(Tafsir Ruh al-Bayan, Band 1, Seite 160, Juz 1, Al-Baqarah: 69)
+
+8. Daraus wird klar, dass ein Opfertier umso besser ist, je makelloser, schöner und wertvoller es ist. (Und Allah weiß es am besten)
