@@ -71,3 +71,10 @@ Als Sie diese Beleidigung in der Öffentlichkeit hörten, waren Sie sehr verärg
 **Jeder Mann von Balkh wurde zum Lügner** Hadhrat Khwaja Abu Ali Daqaq alaihissalam berichtet, dass, als die Leute von Balkh Hadhrat Khwaja Muhammad bin Fadl (möge Allah ihm sein Geheimnis heiligen) zu Unrecht aus der Stadt vertrieben, Sie die Leute der Stadt mit diesem Fluch belegten, dass, o Allah, ihnen nicht die Aufrichtigkeit gewähre. Das Ergebnis war, dass über Jahre hinweg kein wahrhaftiger Mensch mehr in dieser Stadt übrig blieb und jeder Mann der Stadt ein gewohnheitsmäßiger Lügner wurde, und sie wurde die Stadt der Lügner genannt.
 
 (Ruh al-Bayan, Bd. 2, S. 46, Juz 3, Al Imran: 63)
+
+Jedenfalls sollte man die Älteren niemals durch sein Verhalten verärgern, sonst verwandelt sich selbst ein kleiner Groll in ihren Herzen in einen göttlichen Zornsturm, der dich in die Höhle der Zerstörung und des Verderbens stürzen und dich völlig vernichten wird.
+
+Der Zorn Gottes ist der Blick ihrer Augen,
+
+Wer fiel von ihrem Blick, kann sich nicht wieder aufrichten.
+
