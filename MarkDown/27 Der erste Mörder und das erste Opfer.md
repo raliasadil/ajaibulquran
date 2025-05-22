@@ -1,4 +1,4 @@
-## 21 Der erste Mörder und das erste Opfer
+## 20 Der erste Mörder und das erste Opfer
 
 Der erste Mörder auf Erden war Qabil und das erste Opfer war Habil. Qabil und Habil waren die Söhne von Seiner Heiligkeit Adam (Friede sei mit ihm). Die Geschichte der beiden ist, dass bei jeder Schwangerschaft Seiner Heiligkeit Hawa (möge Allah mit ihr zufrieden sein) ein Junge und ein Mädchen geboren wurden. Und ein Junge einer Schwangerschaft wurde mit dem Mädchen einer anderen Schwangerschaft verheiratet. Gemäß diesem Brauch wollte Seine Heiligkeit Adam (Friede sei mit ihm) Qabil mit Liyuda verheiraten, die zusammen mit Habil geboren wurde. Doch Qabil war damit nicht einverstanden, weil Iqlima schöner war und er sie begehrte.
 
