@@ -25,7 +25,12 @@ Als er dann mit seiner geehrten Frau von Madyan nach Ägypten in seine Heimat au
 
 **Übersetzung von Kanz-ul-Iman:** Und was ist das in deiner rechten Hand, o Musa? Er sagte: Das ist mein Stock, auf den ich mich stütze, und mit dem ich Blätter für meine Schafe abschlage, und ich habe andere Zwecke darin.
 
-leuchten zu lassen, um dir Licht zu geben. {5} mit ihm Feinde, Raubtiere, Schlangen und Skorpione zu töten. {6} beim Schöpfen von Wasser aus dem Brunnen zu einem Seil und seine beiden Äste zu einem Eimer zu werden. {7} bei Bedarf zu einem Baum zu werden und je nach Wunsch Früchte zu tragen. {8} ihn in die Erde zu stecken, damit Wasser heraussprudelt usw. (Madarik al-Tanzil, Band 3, Seite 251, Taha: 17-18)
+In der Interpretation davon sagte Hazrat Allama Abul Barakat Abdullah bin Ahmad Nasafi (علیہ الرحمۃ): Zum Beispiel
+
+{1} ihn in der Hand zu halten und sich darauf zu stützen. {2} mit ihm zu sprechen und sich zu unterhalten. {3} tagsüber ein Baum zu werden, um dir Schatten zu spenden. {4} nachts die beiden Äste
+leuchten zu lassen, um dir Licht zu geben. {5} mit ihm Feinde, Raubtiere, Schlangen und Skorpione zu töten. {6} beim Schöpfen von Wasser aus dem Brunnen zu einem Seil und seine beiden Äste zu einem Eimer zu werden. {7} bei Bedarf zu einem Baum zu werden und je nach Wunsch Früchte zu tragen. {8} ihn in die Erde zu stecken, damit Wasser heraussprudelt usw. 
+
+(Madarik al-Tanzil, Band 3, Seite 251, Taha: 17-18)
 
 Prophet Musa (علیہ السلام) verrichtete mit diesem heiligen Stock die oben genannten Taten. Doch als er Pharao besuchte, um ihn zur Rechtleitung zu rufen, und dieser ihn als Zauberer bezeichnete und verleugnete, begannen sich mit diesem Stock große Wunder zu offenbaren. Drei davon, die der Quran wiederholt erwähnt, sind die folgenden:
 
