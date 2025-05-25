@@ -2,7 +2,7 @@
 
 نَحْمَدُهُ وَنُصَلِّي عَلَى رَسُولِهِ الْكَرِيمِ
 
-## 1. Der Stock des Paradieses.
+## 1. Der Stock des Paradieses
 
 Dies ist jener heilige Stock von Prophet Musa (علیہ السلام), der "Asa Musa" (der Stock von Musa) genannt wird. Durch ihn manifestierten sich viele Seiner Wunder, die der Quran wiederholt unter verschiedenen Titeln beschrieben hat.
 
