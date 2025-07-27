@@ -1,0 +1,16 @@
+## 36 Die Frau von Abu Lahab konnte den Gesandten Allahs nicht sehen
+
+Als die Sura „ تبَّتْ يَدَا “ offenbart wurde und Abu Lahab und seine Frau Umm Jamil in dieser Sura getadelt wurden, geriet Abu Lahab's Frau Umm Jamil außer sich vor Wut. Und sie nahm einen sehr großen Stein und ging zum Haram der Kaaba. Zu dieser Zeit verrichtete Der Prophet صلی اللہ علیہ وسلم das Gebet und rezitierte den Koran, und in der Nähe saß Abu Bakr as-Siddiq رضی اللہ عنہ. Umm Jamil kam murmelnd, ging an Der Prophet صلی اللہ علیہ وسلم vorbei und kam zu Abu Bakr as-Siddiq رضی اللہ عنہ. Und vor Wut schäumte sie im Mund und sagte: „Sagt mir, wo ist euer Gesandter Allahs? Mir wurde gesagt, dass er mich und meinen Mann satirisiert hat.“ Abu Bakr as-Siddiq رضی اللہ عنہ sagte: „Unser Gesandter Allahs ist kein Dichter, der jemanden satirisiert.“ Dann ging sie voller Zorn und Wut im gesamten Haram der Kaaba herum und suchte fluchend nach Der Prophet عليه الصلوۃ والسلام. Doch als sie Der Prophet صلی اللہ علیہ وسلم nicht sehen konnte, ging sie murmelnd aus dem Haram. Und sie sagte zu Abu Bakr as-Siddiq رضی اللہ عنہ: „Ich habe diesen Stein mitgebracht, um den Kopf eures Gesandten Allahs zu zerschmettern, aber leider konnte ich ihn nicht finden.“ Abu Bakr as-Siddiq رضی اللہ عنہ erwähnte diesen Vorfall bei Der Prophet صلی اللہ علیہ وسلم, woraufhin Sie sagten: „Sie ist mehrmals an mir vorbeigegangen, aber ein Engel trat zwischen mich und sie, so dass sie mich trotz des aufmerksamen Hinsehens nicht sehen konnte.“ Bezüglich dieses Vorfalls wurde dieser Vers offenbart:
+
+وَإِذَا قَرَأَتَ الْقُرْآنَ جَعَلْنَا بَيْنَكَ وَبَيْنَ الَّذِينَ لَا يُؤْمِنُونَ بِالآخِرَةِ حِجَابًا مَسْتُوران 
+
+ **Übersetzung von Kanzul-Iman:** Und o Geliebter, als du den Koran rezitiert hast, haben Wir zwischen dir und denen, die nicht an das Jenseits glauben, einen verborgenen Schleier gelegt.
+
+(خزائن العرفان, S. 515, P. 15, Bani Israil: 45)
+
+**Lektion:** Die Frau Umm Jamil, obwohl sie sehend war und trotz ihres starren Hinsehens und wiederholten Vorbeigehens bei Der Prophet عليه الصلوۃ والسلام auf der Suche nach Ihm, konnte sie Sie nicht sehen. Zweifellos ist dies eine seltsame Sache, und sie kann als nichts anderes als ein Wunder von Der Prophet صلی اللہ علیہ وسلم bezeichnet werden. Solche Wunder sind von Der Prophet صلی اللہ علیہ وسلم oft geschehen, und auch von vielen Freunde Allahs (Awliyah Allah) sind solche Karamat* oft geschehen. Und diese Karamat [^1] der Awliya sind tatsächlich die Wunder unseres Propheten صلی اللہ علیہ وسلم. Denn das Karamat eines ولی ist in Wirklichkeit ein Wunder seines Propheten.
+
+
+[^1]: **Karamat der Awliya Allah:** Karamat sind außergewöhnliche Ereignisse oder Wunder, die von den Freunden Allahs (Awliya Allah) vollbracht werden. Diese Ereignisse sind Zeichen ihrer besonderen Nähe zu Allah und ihrer spirituellen Erhöhung. Sie sind nicht im Widerspruch zu den Gesetzen der Natur, sondern übersteigen sie in einer Weise, die den Glauben an die Macht und Majestät Allahs stärkt. Karamat können in verschiedenen Formen auftreten, wie Heilungen, Wissen über verborgene Dinge oder außergewöhnliche Fähigkeiten, die den Awliya Allah verliehen werden.
+
+اللَّهُمَّ صَلِّ عَلَى سَيِّدِنَا مُحَمَّدٍ وَعَلَى آلِ سَيِّدِنَا مُحَمَّدٍ وَبَارِكُ وَسَلِّم
