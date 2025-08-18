@@ -1,0 +1,16 @@
+## 41 Die erste Rede von Hadrat Isa عليه السلام 
+
+
+Als Hadrat Maryam رضی اللہ تعالیٰ عنہا Hadrat 'Isa عليه السلام auf dem Arm in die Siedlung der Banu Isra'il brachte, beschuldigte das Volk sie der Unzucht. Die Leute begannen zu sagen: „O Maryam! Du hast etwas sehr Schlimmes getan. Dabei gab es bei deinen Eltern keine Mängel, und auch deine Mutter war keine Sünderin. Wie konntest du ohne einen Ehemann einen Jungen bekommen?“ Als das Volk sie sehr verleumdete und beschimpfte, schwieg Hadrat Maryam رضی اللہ تعالیٰ عنہا selbst, wies aber darauf hin: „Fragt dieses Kind alles.“ Daraufhin sagten die Leute: „Was und wie sollen wir mit diesem Kind sprechen? Es ist ja noch ein Säugling in der Wiege.“ Als Hadrat 'Isa عليه السلام diese Worte des Volkes hörte, begann er eine Rede zu halten. Allah der Erhabene hat dies im Koran wie folgt beschrieben:
+
+قَالَ اِنِّیْ عَبْدُ اللّٰهِ ﳴ اٰتٰنِیَ الْكِتٰبَ وَ جَعَلَنِیْ نَبِیًّا (30) وَّ جَعَلَنِیْ مُبٰرَكًا اَیْنَ مَا كُنْتُ ﳚ وَ اَوْصٰنِیْ بِالصَّلٰوةِ وَ الزَّكٰوةِ مَا دُمْتُ حَیًّا (31) وَّ بَرًّۢا بِوَالِدَتِیْ ﳚ وَ لَمْ یَجْعَلْنِیْ جَبْبārًا شَقِیًّا (32) وَ السَّلٰمُ عَلَیَّ یَوْمَ وُلِدْتُّ وَ یَوْمَ اَمُوْتُ وَ یَوْمَ اُبْعَثُ حَیًّا (33)
+
+(P16, Maryam: 30-33)
+
+**Übersetzung Kanz-ul-Iman:** [Das Kind] sprach: „Ich bin wahrlich ein Diener Allahs. Er hat mir das Buch gegeben und mich zu einem Propheten gemacht. Und Er hat mich gesegnet gemacht, wo immer ich bin, und mir das Gebet und die Zakat anbefohlen, solange ich lebe. Und gütig zu meiner Mutter, und Er hat mich nicht zu einem gewalttätigen, unglücklichen gemacht. Und der Friede ist auf mir am Tag meiner Geburt, am Tag, an dem ich sterbe, und am Tag, an dem ich wieder lebendig auferweckt werde.“
+
+#### **Lehre der Rechtleitung:**
+1. Dies ist ein Wunder von Hadrat 'Isa عليه السلام, dass er gleich nach der Geburt mit eloquenter Sprache eine so umfassende Rede hielt. In dieser Rede nannte er sich zuerst einen Diener Allahs, damit ihn niemand Allah oder Sohn Allahs nennen konnte. Denn die Leute würden ihn in Zukunft beschuldigen, und diese Beschuldigung würde sich gegen Allah den Erhabenen richten. Daher war es die Anforderung seines Prophetenamtes, zuerst die Beschuldigung zu widerlegen, die gegen Allah den Erhabenen erhoben werden würde, bevor er die gegen seine Mutter erhobene Beschuldigung widerlegte. Allahu Akbar! Es ist wahr, dass der Herr, der Allmächtige, denjenigen, den Er mit der Ehre des Prophetentums auszeichnet, dessen Geburt zweifellos äußerst rein, edel und makellos ist, und schon in der Kindheit zeigen sich die erhabenen Zeichen seines Prophetentums.
+2. In diesem Ruku' (Abschnitt) der Sure Maryam hat Allah der Erhabene die gesamte Geschichte der gesegneten Geburt (Milad Sharif) von Hadrat 'Isa عليه السلام erzählt und am Ende den Frieden (Salam) erwähnt. Daraus geht hervor, dass das Rezitieren des Milad des Gesandten Allahs ﷺ und das anschließende Sprechen von Segenswünschen und Frieden (Salat o Salam) eine heilige Sunnah Allahs des Erhabenen ist und dies ist die gesegnete Praxis der Ahlus Sunnah wal Jama'ah.
+3. Aus der oben genannten Rede von Hadrat 'Isa عليه السلام geht hervor, dass Gebet (Salah), Almosen (Zakat) und guter Umgang mit den Eltern Pflichten sind, die auch in der Shari'ah von Hadrat 'Isa عليه السلام verpflichtend waren.
+
