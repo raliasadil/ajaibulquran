@@ -1,0 +1,30 @@
+## 45. Die Prüfung des Propheten Ayyub عليه السلام
+
+Der ehrenwerte Prophet Ayyub alaihis salam stammt aus der Nachkommenschaft des Propheten Ishaq alaihis salam, und seine Mutter stammte aus der Familie des Propheten Lut alaihis salam. Allah der Erhabene hatte ihn mit allen Arten von Segnungen beschenkt. Er besaß sowohl Schönheit des Angesichts als auch eine Fülle an Reichtum und Kindern; er war der Besitzer von unzähligen Nutztieren, Feldern, Gärten und so weiter. Als Allah der Erhabene ihn einer Prüfung und einem Examen unterzog, stürzte sein Haus ein und all seine Söhne wurden darunter begraben und starben. All seine Tiere, darunter Hunderte von Kamelen und Tausende von Schafen, starben. Alle Felder und Gärten wurden ebenfalls zerstört. Kurz gesagt, ihm blieb nichts mehr. Als ihm die Nachricht von der Zerstörung und dem Untergang dieser Dinge überbracht wurde, pries er Allah und dankte Ihm, indem er sagte: „Was gehörte mir und was ist es? Dessen es war, Der hat es genommen. Solange Er es mir gegeben hatte, besaß ich es; als Er es wollte, nahm Er es. Ich bin in jeder Lage mit Seinem Willen zufrieden.“ Danach wurde er krank, und auf seinem gesegneten Körper bildeten sich große Blasen. In diesem Zustand verließen ihn alle Menschen, außer seiner Frau, deren Name „Rahmat bint Afra'im“ war und die eine Enkelin des Propheten Yusuf alaihis salam war; sie diente ihm. Jahrelang blieb sein Zustand derselbe; er litt unter großen Schmerzen durch die Wunden der Blasen und Geschwüre.
+
+**_Anmerkung:_** Unter den Menschen ist allgemein verbreitet, dass – maʿādhallāh – Sie an Lepra erkrankt seien. Über die Lepra von Hazrat Ayyūb (Friede sei mit ihm) sind in vielen unzuverlässigen Erzählungen auch Geschichten niedergeschrieben worden. Doch merke dir: All diese Dinge sind völlig falsch, und niemals ist er an Lepra oder Aussatz erkrankt. Dafür gibt es eine gesicherte Überlieferung, dass es notwendig ist, dass die Propheten (Friede sei mit ihnen) vor all jenen Krankheiten geschützt bleiben, die in den Augen der Allgemeinheit Abscheu und Verachtung hervorrufen. Denn es gehört zur Aufgabe der Propheten, dass sie beständig den Auftrag der Verkündigung und Rechtleitung erfüllen. Offensichtlich wäre es unmöglich, wenn die Menschen wegen Krankheiten Abscheu empfänden und sich von ihnen entfernten – wie könnten sie dann ihrer Pflicht zur Verkündigung nachkommen?
+
+Kurz gesagt Hazrat Ayyūb (Friede sei mit ihm) ist niemals an Lepra oder Aussatz erkrankt, vielmehr traten an seinem Körper einige Geschwüre und Blasen auf, die ihn jahrelang plagten und ihm Mühsal bereiteten. Doch er blieb stets geduldig und dankbar. Dann richtete er folgendes Bittgebet an seinen Herrn:
+أَنِّي مَسَّنِيَ الضُّرُّ وَ اَنْتَ أَرْحَمُ الرَّحِمِينَ
+
+(P. 17, Al-Anbiya: 83)
+
+**Übersetzung aus Kanz-ul-Iman:** Mich hat das Leid getroffen, und Du bist der Barmherzigste der Barmherzigen.
+
+Als er die Prüfung Gottes bestanden hatte und im Examen erfolgreich war, wurde sein Gebet erhört, und der Barmherzigste der Barmherzigen befahl: „O Ayyub عليه السلام! Stampfe mit deinem Fuß auf die Erde.“ Als er mit dem Fuß auf die Erde stampfte, entsprang sofort eine Quelle. Der göttliche Befehl lautete, sich mit diesem Wasser zu waschen. Also wusch er sich, und alle Krankheiten seines Körpers verschwanden. Dann ging er vierzig Schritte weiter, und es wurde ihm befohlen, erneut mit dem Fuß auf die Erde zu stampfen. Als er mit dem Fuß stampfte, entsprang eine weitere Quelle, deren Wasser äußerst kalt, sehr süß und äußerst köstlich war. Er trank dieses Wasser, und in seinem Inneren entstand Licht über Licht. Er erlangte höchste Gesundheit und strahlende Schönheit. Allah der Erhabene erweckte all seine Kinder wieder zum Leben, schenkte seiner Frau ihre Jugend zurück, und sie bekamen viele Kinder. Dann erhielt er auch all sein verlorenes Vieh, seine Habe und seinen Besitz zurück, ja, er erhielt sogar weit mehr Reichtum und Güter als zuvor.
+
+Während dieser Krankheit rief er eines Tages nach seiner Frau, doch sie erschien erst nach langer Zeit. Aus Wut darüber schwor er, ihr hundert Hiebe zu versetzen. Daraufhin sprach Allah der Erhabene: „O Ayyub عليه السلام, nimm einen Besen aus hundert Zweigen und schlage deine Frau damit einmal.“
+
+Auf diese Weise wird dein Eid erfüllt sein. So hat Allah der Erhabene dieses Ereignis im edlen Koran wie folgt beschrieben:
+
+ار كُضْ بِرِجْلِكَ هُذَا مُغْتَسَلْ بَارِ دُو شَرَابٌ وَوَهَبْنَا لَهُ أَهْلَهُ وَمِثْلَهُمْ مَّعَهُمْ رَحْمَةً مِنَّاوَ ذِكْرَى لِأُولِي الْأَلْبَابِ وَخُذْ بِيَدِكَ ضِغْنَا فَاضْرِبْ بِهِ وَلَا تَحْنَتْ إِنَّا وَ جَدْ لَهُ صَابِرًا نِعْمَ الْعَبْدُ إِنَّهَ أَوَّابٌ
+
+(P. 23, Sad: 42-44)
+
+**Übersetzung aus Kanz-ul-Iman:** Wir sprachen: „Stampfe mit deinem Fuß auf die Erde.“ Dies ist eine kühle Quelle zum Waschen und Trinken. Und Wir schenkten ihm seine Familie und noch einmal so viele dazu, als eine Barmherzigkeit von Uns und eine Ermahnung für die Verständigen. Und Wir sprachen: „Nimm einen Büschel in deine Hand und schlage damit und brich deinen Eid nicht.“ Wahrlich, Wir fanden ihn geduldig. Welch trefflicher Diener! Wahrlich, er wandte sich oft (Allah) zu.
+
+Kurz gesagt, der Prophet Ayyub عليه السلام war in dieser Prüfung vollkommen erfolgreich. Und Allah der Erhabene ehrte ihn auf jede Weise mit Seinen Gunstbezeugungen und Wohltaten und krönte sein gesegnetes Haupt mit der Krone der Erhabenheit durch den unvergleichlichen Titel „Awwab“ (der sich oft Reumütige zuwendet) in Seiner Lobpreisung im edlen Koran.
+
+**Lehre der Rechtleitung:**
+
+Aus diesem Prüfungsereignis des Propheten Ayyub عليه السلام lernen wir, dass auch die rechtschaffenen Diener Allahs von Ihm geprüft werden. Und wenn sie in der Prüfung erfolgreich sind und die Probe bestehen, verleiht der heilige Herr ihnen in ihren Rängen und Stufen eine so hohe Erhabenheit, dass kein Mensch sie sich auch nur vorstellen kann. Und aus diesem Ereignis lernen wir auch, wie gut, wie süß und wie köstlich die Frucht der Geduld und der Zufriedenheit mit dem Willen Allahs, des Allmächtigen, zur Zeit der Prüfung ist. Und Allah der Erhabene weiß es am besten.
